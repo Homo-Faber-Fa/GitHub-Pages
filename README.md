@@ -5,7 +5,7 @@
 ## Msk, RF
 ## https://github.com/Homo-Faber-Fa
 
-![My foto](https://ru.pinterest.com/pin/695665473714797637/)
+![My foto](https://avatars.githubusercontent.com/u/133135868?s=40&v=4)
 
 ## About me:
 **More than fifteen years of active work in the financial field** with the use of many different information processing tools. _Impeccable knowledge of English at the advance level._
